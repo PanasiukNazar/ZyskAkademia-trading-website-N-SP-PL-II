@@ -1,0 +1,1 @@
+# ZyskAkademia-trading-website-N-SP-PL-II
